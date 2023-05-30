@@ -1,4 +1,4 @@
-![241967665-0d36b912-790b-4c2f-aa21-38403c63d82b (1)](https://github.com/Euclide23/Euclide23/assets/134521569/5cdcf747-c187-45ef-ba37-a822f27c8b29)
+![Uploading 241967665-0d36b912-790b-4c2f-aa21-38403c63d82b (3).jpg…]()
 
 ### Hi there 👋
 
